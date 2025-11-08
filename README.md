@@ -26,3 +26,14 @@ memorandum缩写 “memo” 并非随意的便条，而是具有 “功能性”
 动词	1. （车轮）轧出车辙
 2. （使）陷入固定模式（尤指乏味的状态）
 3. （动物）发情
+### He seems a likeable enough chap.
+likeable” 是形容词，意为 “讨人喜欢的、可爱的;chap,典型的英式英语口语词汇，意为 “家伙、小伙子”，特指男性，语气轻松、非正式，类似美式英语中的 “guy” 或 “fellow”
+### infuriate
+比 “annoy”（使恼怒，轻微）、“irritate”（使烦躁，中度）强烈得多，与 “enrage”（激怒）、“exasperate”（使恼怒到极点）程度相近，但 “infuriate” 更强调 “愤怒的即时性和针对性”
+### corridor 门廊
+### conference table 会议桌
+### characterless
+修饰人：a characterless person（性格平淡的人）、a characterless leader（缺乏个人魅力的领导者）
+修饰事物：a characterless dress（毫无特色的裙子）、a characterless neighborhood（风格平庸的街区）
+###  I want us to be on first-name terms
+be on first-name terms (with sb)
